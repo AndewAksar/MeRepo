@@ -19,7 +19,7 @@
 Связаться со мной можно через:
 
 - Email: aandrew773@gmail.com
-- Telegram: https://t.me/el_Aksar
+- Twitter: [@ivandev](https://twitter.com/ivandev)
 
 ### факты обо мне:
 - Работал в РЖД и в такси 
