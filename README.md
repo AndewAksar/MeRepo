@@ -19,7 +19,7 @@
 Связаться со мной можно через:
 
 - Email: [@aandrew773@gmail.com](aandrew773@gmail.com) 
-- Twitter: [@el_Aksar](https://t.me/el_Aksar)
+- Telegram: [@el_Aksar](https://t.me/el_Aksar)
 
 ### факты обо мне:
 - Работал в РЖД и в такси 
